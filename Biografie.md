@@ -1,0 +1,1 @@
+Jerry ist ein 8jähriger Junge , der am liebsten Piratengeschichten liest. Sein Hund Jessi ist seit dem Welpenalter bei ihm. Wenn Jerry tagträumt ist Jessi immer sein mutiger und treuer Begleiter auf seinen Piratenabenteuern. 
